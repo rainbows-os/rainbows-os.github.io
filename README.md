@@ -1,1 +1,1 @@
-Rainbows Game Development Website
+WE DEVELOP GAMES
